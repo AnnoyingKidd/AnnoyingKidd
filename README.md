@@ -1,4 +1,4 @@
-# Hi I just copypasted my carrd here don't mind me, I didn't and will not take the time to adjust sizes :p👌
+# Hi I just copypasted my carrd here don't mind me, I didn't and will not take the time to adjust sizes :p👌 
 I will only follow selected ppl I think very highly of... so ye, I don't fb. I do check the profiles of every single one of my followrs here tho I luv yall noobs (⁠ ͡⁠°⁠ ͜⁠ʖ⁠ ͡⁠°⁠)
 ![1000027178](https://github.com/user-attachments/assets/6cb9e4c3-aa51-4754-a720-8a58294d1b6e)
 hello, c00lkidd or nifisita here b: !!
