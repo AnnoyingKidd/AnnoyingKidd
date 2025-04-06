@@ -1,4 +1,4 @@
-# Hi I just copypasted my carrd here don't mind me ;-;
+# Hi I just copypasted my carrd here don't mind me, I didn't and will not take the time to adjust sizes :p👌
 I will only follow selected ppl I think very highly of... so ye, I don't fb. I do check the profiles of every single one of my followrs here tho I luv yall noobs (⁠ ͡⁠°⁠ ͜⁠ʖ⁠ ͡⁠°⁠)
 ![1000027178](https://github.com/user-attachments/assets/6cb9e4c3-aa51-4754-a720-8a58294d1b6e)
 hello, c00lkidd or nifisita here b: !!
@@ -28,9 +28,8 @@ i specialize in:
 
 ![1000027185](https://github.com/user-attachments/assets/9380d99d-d94c-4c36-9e16-1f6050853b79)
 offtab mostly
-**rise ur aura by making eveyrone think youre my bestfriendc xd**
 
 ![1000027186](https://github.com/user-attachments/assets/c888d00f-ec28-44c8-921a-c471c69c8a79)
 i may be too loud or hyperactive that's it
 
-byeee
+bye
