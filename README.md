@@ -1,4 +1,4 @@
-# hi i just copypasted my carrd here don't mind me, I didn't and will not take the time to adjust sizesf👌
+# hi i just copypasted my carrd here don't mind me, i didn't and will not take the time to adjust sizesf👌
 ## IMPORTANT: som people have been shittalking me n or whispering people near me and my friends lies and bad stuff about me, if you got one of those hmu and i'll gladly debunk it w proofff
 dont rly reply to them, their intentions are purely malicious. im fine, im happy, i dont pay attention to them xdd
 i will only follow selected ppl i think very highly of; so ye i dont fb.b i do check the profiles of every single one of my followrs here tho if i want to i send gimmicks or sheet i luv yall noo.bs (⁠ ͡⁠°⁠ ͜⁠ʖ⁠ ͡⁠°⁠)
