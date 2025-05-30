@@ -3,6 +3,7 @@ i will only follow selected ppl i think very highly of so ye i dont fb. i do che
 i'm always available i'm on online classes dm wheneverrf
 
 Whisper me to add u in this list lol
+
 Hearts for:
 
 Andy (partner and malicious corporate boss that forces me to work)
