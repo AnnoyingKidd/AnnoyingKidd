@@ -4,11 +4,17 @@ i'm always available i'm on online classes dm wheneverrf
 
 Whisper me to add u in this list lol
 Hearts for:
+
 Andy (partner and malicious corporate boss that forces me to work)
+
 Moth (coworker and bestie)
+
 Clyde (personal basement clown)
+
 Sam (personal basement clown incase the other one passes out)
+
 Oreo (my spiritually joined twin)
+
 Saw (unfortunately my friend)
 
 
