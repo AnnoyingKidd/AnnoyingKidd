@@ -1,5 +1,7 @@
 i will only follow selected ppl i think very highly of so ye i dont fb. i do check the profiles of every single one of my followrs here tho if i want to i send gimmicks or sheet i luv yall (⁠ ͡⁠°⁠ ͜⁠ʖ⁠ ͡⁠°⁠)
 
+i'm always available i'm on online classes dm wheneverrf
+
 Whisper me to add u in this list lol
 Hearts for:
 Andy (partner and malicious corporate boss that forces me to work)
