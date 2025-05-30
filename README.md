@@ -1,15 +1,22 @@
-# hi i just copypasted my carrd here don't mind me, i didn't and will not take the time to adjust sizesf👌
-## IMPORTANT: som people have been shittalking me n or whispering people near me and my friends lies and bad stuff about me, if you got one of those hmu and i'll gladly debunk it w proofff
-dont rly reply to them, their intentions are purely malicious. im fine, im happy, i dont pay attention to them xdd
-i will only follow selected ppl i think very highly of; so ye i dont fb.b i do check the profiles of every single one of my followrs here tho if i want to i send gimmicks or sheet i luv yall noo.bs (⁠ ͡⁠°⁠ ͜⁠ʖ⁠ ͡⁠°⁠)
+i will only follow selected ppl i think very highly of so ye i dont fb. i do check the profiles of every single one of my followrs here tho if i want to i send gimmicks or sheet i luv yall (⁠ ͡⁠°⁠ ͜⁠ʖ⁠ ͡⁠°⁠)
+
+Whisper me to add u in this list lol
+Hearts for:
+Andy (partner and malicious corporate boss that forces me to work)
+Moth (coworker and bestie)
+Clyde (personal basement clown)
+Sam (personal basement clown incase the other one passes out)
+Oreo (my spiritually joined twin)
+Saw (unfortunately my friend)
+
 
 INACTIVITY FOR MORE THAN 3 DAYS/A WEEK: I'M WORKING, i'll get back on soon i promsie
 ![1000027178](https://github.com/user-attachments/assets/6cb9e4c3-aa51-4754-a720-8a58294d1b6e)
-hello, c00lkidd or nifisita here b: im a very cool friend and loud as hel
-im a **game developer n scripter
+hello, IM c00lkidd or nifisita im a very cool friend and loud as helLLLL
+im a **game developer and scripter
 
 i specialize in:
-* art except i hatef art
+* art except i hate art
 * 2d nd 3d animation except i hate 2d animation
 * scripting
 * blender modelinggggggggg except i hate rigging and uv maps
