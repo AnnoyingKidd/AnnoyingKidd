@@ -2,13 +2,17 @@ i will only follow selected ppl i think very highly of so ye i dont fb. i do che
 
 i'm always available i'm on online classes dm wheneverrf
 
+Dating 3 amazing people!!!
+
 Whisper me to add u in this list lol
 
 Hearts for:
 
 Andy (partner and malicious corporate boss that forces me to work)
 
-Moth (coworker and bestie)
+Moth (partner and malicious corporate coworker that whips me if i dont work)
+
+Michael (partner and malicious corporate coworker that steals my lunch)
 
 Clyde (personal basement clown)
 
