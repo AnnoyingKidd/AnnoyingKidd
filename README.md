@@ -2,7 +2,9 @@
 
 ★ I'm always available I'm on online classes dm wheneverrr
 
-HEARTS FOR!!!:
+HEARTS FOR:
+
+
 Andrew, Melody, Michael (partners)
 
 
