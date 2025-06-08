@@ -1,39 +1,24 @@
-i will only follow selected ppl i think very highly of so ye i dont fb. i do check the profiles of every single one of my followrs here tho if i want to i send gimmicks or sheet i luv yall (⁠ ͡⁠°⁠ ͜⁠ʖ⁠ ͡⁠°⁠)
+★ I will ONLY follow selected ppl I think very highly of or close friends so yeah I don't fb. I do check the profiles of every single one of my followrs here tho, I send gimmicks and sign atas sometimes 👍
 
-i'm always available i'm on online classes dm wheneverrf
+★ I'm always available I'm on online classes dm wheneverrr
 
-Dating 3 amazing people!!!
+HEARTS FOR!!!:
+Andrew, Melody, Michael (partners)
 
-Whisper me to add u in this list lol
 
-Hearts for:
+Elliot (@camycatyy / @late-night-snack), Clyde, Sam, Oreo (bestest friends :) I love you all)
 
-Andy (partner and malicious corporate boss that forces me to work)
 
-Moth (partner and malicious corporate coworker that whips me if i dont work)
-
-Michael (partner and malicious corporate coworker that steals my lunch)
-
-Clyde (personal basement clown)
-
-Sam (personal basement clown incase the other one passes out)
-
-Oreo (my spiritually joined twin)
-
-Saw (unfortunately my friend)
-
+Saw (Friend.... I guess!!!!!!!! 🙄)
 
 INACTIVITY FOR MORE THAN 3 DAYS/A WEEK: I'M WORKING, i'll get back on soon i promsie
 ![1000027178](https://github.com/user-attachments/assets/6cb9e4c3-aa51-4754-a720-8a58294d1b6e)
-hello, IM c00lkidd or nifisita im a very cool friend and loud as helLLLL
-im a **game developer and scripter
-
-i specialize in:
-* art except i hate art
-* 2d nd 3d animation except i hate 2d animation
-* scripting
-* blender modelinggggggggg except i hate rigging and uv maps
-* scuplting except i hate sculpting
+★ I AM OPEN FOR HIRE. I MAXXED ALL MY STATS, WASTED ALL MY ELIXIR........ and I specialize in:
+* Art
+* 2D and 3D animation (Mostly storyboards when it comes to 2D though)
+* Scripting (Datastores, Networking, ModuleScript Architecture, etc)
+* Blender Modelling!!! I do UV maps too and I can do simple rigging
+* Sculpting, just an extra, I don't sell thosee
 
 ![1000027188](https://github.com/user-attachments/assets/777943bc-9113-44cb-a800-ad965079d4b2)
 ![1000027179](https://github.com/user-attachments/assets/6bbbccb0-dda6-4ef8-aaf1-25fb6cee44f1)
