@@ -17,7 +17,7 @@ INACTIVITY FOR MORE THAN 3 DAYS/A WEEK: I'M WORKING, i'll get back on soon i pro
 ![1000027178](https://github.com/user-attachments/assets/6cb9e4c3-aa51-4754-a720-8a58294d1b6e)
 ★ I AM OPEN FOR HIRE (PAYPAL AND ROBUX ONLY, PAYPAL PREFERRED). I MAXXED ALL MY STATS, WASTED ALL MY ELIXIR........ and I specialize in:
 * Art
-* 2D and 3D animation (Mostly storyboards when it comes to 2D though)
+* 2D and 3D animation (Mostly storyboards and frame by frame (>30fps) when it comes to 2D though)
 * Scripting (Datastores, Networking, ModuleScript Architecture, etc)
 * Blender Modelling!!! I do UV maps too and I can do simple rigging
 * Sculpting, just an extra, I don't sell thosee
