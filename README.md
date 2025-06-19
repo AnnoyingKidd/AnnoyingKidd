@@ -5,10 +5,10 @@
 HEARTS FOR:
 
 
-Andrew, Melody, Michael (partners)
+Andrew, Melody (partners)
 
 
-Elliot (@camycatyy / @late-night-snack), Clyde, Sam, Oreo (bestest friends :) I love you all)
+Elliot (@camycatyy / @late-night-snack), Clyde, Sam, Oreo, Michael (bestest friends :) I love you all)
 
 
 Saw (Friend.... I guess!!!!!!!! 🙄)
