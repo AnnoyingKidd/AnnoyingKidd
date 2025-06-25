@@ -5,7 +5,8 @@
 HEARTS FOR:
 
 
-Andrew, Melody (partners)
+Andrew (Romantic Partner)
+Melody (Platonic wife :D)
 
 
 Elliot (@camycatyy / @late-night-snack), Clyde, Sam, Oreo, Michael (bestest friends :) I love you all)
