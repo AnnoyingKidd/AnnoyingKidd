@@ -2,6 +2,8 @@
 
 ★ I'm always available I'm on online classes dm wheneverrr
 
+![Lua](https://img.shields.io/badge/Lua-2C2D72?style=for-the-badge&logo=lua&logoColor=red)
+
 ───────────────────────────────────────────────────────────────────────
 
 # HEARTS FOR:
@@ -9,8 +11,6 @@
 
 Andrew (Romantic Partner)
 Melody (Platonic wife :D)
-
-
 Elliot (@camycatyy / @late-night-snack)
 Clyde
 Quentin
