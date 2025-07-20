@@ -2,6 +2,8 @@
 
 ★ I'm always available I'm on online classes dm wheneverrr
 
+![GitHub Stats](https://github-readme-stats.vercel.app/api?username=AnnoyingKidd&show_icons=true&theme=radical)
+
 ───────────────────────────────────────────────────────────────────────
 
 # HEARTS FOR:
