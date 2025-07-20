@@ -1,22 +1,29 @@
-★ I will ONLY follow selected ppl I think very highly of or close friends so yeah I don't fb. I do check the profiles of every single one of my followrs here tho, I send gimmicks and sign atas sometimes 👍
+# ★ I will ONLY follow selected ppl I think very highly of or close friends so yeah I don't fb. I do check the profiles of every single one of my followrs here tho, I send gimmicks and sign atas sometimes 👍
 
 ★ I'm always available I'm on online classes dm wheneverrr
 
-HEARTS FOR:
+───────────────────────────────────────────────────────────────────────
+
+# HEARTS FOR:
 
 
 Andrew (Romantic Partner)
 Melody (Platonic wife :D)
 
 
-Elliot (@camycatyy / @late-night-snack), Clyde, Sam, Oreo, Michael (bestest friends :) I love you all)
+Elliot (@camycatyy / @late-night-snack)
+Clyde
+Quentin
+Bag (@VULTUSLUMINARIA)
+Sam
+Ten (@anomaly0010)
+Oreo
+Michael
 
-
-Saw (Friend.... I guess!!!!!!!! 🙄)
 
 INACTIVITY FOR MORE THAN 3 DAYS/A WEEK: I'M WORKING, i'll get back on soon i promsie
 ![1000027178](https://github.com/user-attachments/assets/6cb9e4c3-aa51-4754-a720-8a58294d1b6e)
-★ I AM OPEN FOR HIRE (PAYPAL AND ROBUX ONLY, PAYPAL PREFERRED). I MAXXED ALL MY STATS, WASTED ALL MY ELIXIR........ and I specialize in:
+★ I AM OPEN FOR HIRE (WESTERN UNION ONLY :sob:). I MAXXED ALL MY STATS, WASTED ALL MY ELIXIR........ and I specialize in:
 * Art
 * 2D and 3D animation (Mostly storyboards and frame by frame (>30fps) when it comes to 2D though)
 * Scripting (Datastores, Networking, ModuleScript Architecture, etc)
