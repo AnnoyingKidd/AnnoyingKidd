@@ -25,8 +25,6 @@ Ten (@anomaly0010)
 
 Oreo
 
-Michael
-
 
 
 INACTIVITY FOR MORE THAN 3 DAYS/A WEEK: I'M WORKING, i'll get back on soon i promsie
