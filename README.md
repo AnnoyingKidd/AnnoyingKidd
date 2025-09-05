@@ -19,11 +19,8 @@ Quentin
 
 Bag (@VULTUSLUMINARIA)
 
-Sam
-
 Ten (@anomaly0010)
 
-Oreo
 
 
 
