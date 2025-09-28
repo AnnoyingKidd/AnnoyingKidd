@@ -9,8 +9,6 @@
 
 Andrew (Romantic Partner)
 
-Melody (Platonic wife :D)
-
 Elliot (@camycatyy / @late-night-snack)
 
 Clyde
@@ -21,7 +19,7 @@ Bag (@VULTUSLUMINARIA)
 
 Ten (@anomaly0010)
 
-
+Michael
 
 
 INACTIVITY FOR MORE THAN 3 DAYS/A WEEK: I'M WORKING, i'll get back on soon i promsie
