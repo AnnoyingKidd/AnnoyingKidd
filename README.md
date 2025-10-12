@@ -1,5 +1,7 @@
 # ★ I will ONLY follow selected ppl I think very highly of or close friends so yeah I don't fb. I do check the profiles of every single one of my followrs here tho, I send gimmicks and sign atas sometimes 👍
 
+THANKS TO EVERYONE THAT I SEE MAKING MEMORY LANE SKINS <333 I'M SO HAPPY YOU ALL ENJOY MY GAME
+
 ★ I'm always available I'm on online classes dm wheneverrr
 
 ───────────────────────────────────────────────────────────────────────
@@ -9,11 +11,13 @@
 
 Andrew (Romantic Partner)
 
+Mel (Platonic Wife)
+
 Elliot (@camycatyy / @late-night-snack)
 
 Clyde
 
-Quentin
+Quentin (Commissionholic Father HAHAHAHA)
 
 Bag (@VULTUSLUMINARIA)
 
